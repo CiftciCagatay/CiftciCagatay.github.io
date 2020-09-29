@@ -1,1 +1,0 @@
-# CiftciCagatay.github.io
